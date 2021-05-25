@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SyedHussain94
+- 👀 I’m interested in upskilling myself and finding challenging work
+- 🌱 I’m currently learning all the modules in hybris
+- 💞️ I’m looking to collaborate on complex projects 
+- 📫 You can reach me on +919590105693 and syed.wasim.hussain94@gmail.com
